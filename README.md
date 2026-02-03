@@ -5,6 +5,7 @@ about me ;
 - i really like pokemon, vocaloid, twisted wonderland, black butler, bugs, and dinosaurs :)
 - if you don't like seeing a specific type of animal/need a tw please tell me! i like to send pictures of animals i find cute to my friends (including insects, arachnids, amphibians, and reptiles)
 - i LOVE yapping about my interests, if i start it probably means i like you
+- call me team yama the way i love pokemon evil teams am i right
 
 talk to me about ;
 - pokemon!! currently hyperfixating :)
