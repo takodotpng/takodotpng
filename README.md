@@ -33,7 +33,8 @@ my favorite dinosaur is thanatotheristes
 
 my favorite bug is the mexican red-kneed tarantula
 
-## <img width="1673" height="325" alt="image" src="https://github.com/user-attachments/assets/4e3ba00e-5d67-4037-9ed6-e0d93d9d4fb7" />
+## <img width="752" height="232" alt="image" src="https://github.com/user-attachments/assets/b40305ce-7a84-4f03-956b-c6a094ea0bcb" />
+
 
 dni ;
 - basic dni criteria
