@@ -21,7 +21,7 @@ things you should know before interacting ;
 favorite pokemon i've had in the games ;
 - james pond - inteleon, male, bold + "quick to flee" - my galar starter and also my babygirl, he's a boyfailure to me
 - raspberry - _shiny_ scolipede, male, lax + "good perserverance" - my first ever shiny, full odds, reset the game for 2 hours straight until i got him <3 love him
-- glorp - _shiny_ espeon, male, quiet + "highly persistent" - shiny espeon, named glorp for being BRIGHT FUCKING GREEN!!!!, caught in a friend ball and someone hypertrained him, leveled him to 100, and had him hold a beast ball in thanks for my evolving their sliggoo since they couldn't get it to rain :)
+- glorp - _shiny_ espeon, male, quiet + "highly persistent" - named glorp for being BRIGHT FUCKING GREEN!!!!, caught in a friend ball and someone hypertrained him, leveled him to 100, and had him hold a beast ball in thanks for my evolving their sliggoo since they couldn't get it to rain :)
 - koraidon - ...koraidon, genderless (but i use he/him), quirky + "likes to thrash about" - the koraidon you get at the start in scarlet, my beloved dragon bike, occasionally called "big red" after secretariat and because he's big and red
 - lyney - meowscarada, male, lonely + "mischievous" - my paldea starter and my cute little kitty
 - psychopomp - hisuian typhlosion, male, docile - my hisui starter and my first ever pokemon in a mainline game, my darling and my beloved even if he does look high as a kite
