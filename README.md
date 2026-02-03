@@ -4,7 +4,7 @@
 about me ;
 - i really like pokemon, vocaloid, twisted wonderland, black butler, bugs, and dinosaurs :)
 - if you don't like seeing a specific type of animal/need a tw please tell me! i like to send pictures of animals i find cute to my friends (including insects, arachnids, amphibians, and reptiles)
-- really shy but always happy to talk about my interests to people!!
+- i LOVE yapping about my interests, if i start it probably means i like you
 
 talk to me about ;
 - pokemon!! currently hyperfixating :)
@@ -21,7 +21,7 @@ things you should know before interacting ;
 
 my favorite pokemon are scolipede, inteleon, meowscarada, hisuian typhlosion, and koraidon
 
-my favorite pokemon characters are corbeau, arven, volo, avery, and james (i love the women too i promise 😭)
+my favorite pokemon characters are corbeau, arven, volo, avery, n, and james (i love the women too i promise 😭)
 
 my favorite vocaloid is kaito
 
@@ -39,10 +39,12 @@ dni ;
 - basic dni criteria
 - radqueer/radqueer supporters
 - hardcore ai supporters - if you use it casually i don't care but if you're a full on ai bro i don't want to interact with you
+- people who don't like my selfshipping with fictional characters - doesn't hurt you if i want to fantasize about dating a fake man i promise
 - nothing much else, be chill and i won't have a problem with you
 
 iwc ;
 - hating on my favorite characters/pokemon/games - if it's obviously a joke idm though
 - ruikasa/akitoya/anhane shippers (not homophobic promise just don't want to get shit on for the ships i like and i feel like these ships have a lot of people who are all too happy to do that)
 - hardcore ai haters - if you dislike it i get it but if you're like "I HATE AI AND I HOPE ALL AI BROS DIE AND CHATGPT GETS SHUT DOWN RN!!!!" or some other overreaction like that i probably don't want to talk to you
-- proshippers - i quite honestly do not care all that much about what weird ships you like but don't tell me about them
+- proshippers - i quite honestly do not care all that much about what weird ships you like but don't tell me about them and ideally dni if you want to
+- dsmp likers - most of the people i've seen who like the dsmp are weird as hell i'm sorry 😭
