@@ -9,10 +9,15 @@ about me ;
 ## <img width="1673" height="493" alt="image" src="https://github.com/user-attachments/assets/1eb1e16f-a959-4d0c-9a5c-29cb97bf2582" />
 
 my favorite pokemon are scolipede, inteleon, meowscarada, hisuian typhlosion, and koraidon
+
 my favorite vocaloid is kaito
+
 my favorite twst characters are floyd, sebek, ace, jade, and azul
+
 my favorite black butler characters are grell, snake, ronald, edward, and cheslock
+
 my favorite dinosaur is thanatotheristes
+
 my favorite bug is the mexican red-kneed tarantula
 
 ## <img width="1673" height="325" alt="image" src="https://github.com/user-attachments/assets/4e3ba00e-5d67-4037-9ed6-e0d93d9d4fb7" />
