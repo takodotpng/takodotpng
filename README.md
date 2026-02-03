@@ -2,14 +2,28 @@
 
 ## <img width="1673" height="493" alt="image" src="https://github.com/user-attachments/assets/8b2d1516-1803-4b47-8360-69fdcabbff82" />
 about me ;
-- i really like pokemon, vocaloid, twisted wonderland, bugs, and dinosaurs :)
-- if you don't like seeing a specific type of animal please tell me since i like to send pictures of animals i find cute to my friends (including insects, arachnids, amphibians, and reptiles)
+- i really like pokemon, vocaloid, twisted wonderland, black butler, bugs, and dinosaurs :)
+- if you don't like seeing a specific type of animal/need a tw please tell me! i like to send pictures of animals i find cute to my friends (including insects, arachnids, amphibians, and reptiles)
 - really shy but always happy to talk about my interests to people!!
 
 ## <img width="1673" height="493" alt="image" src="https://github.com/user-attachments/assets/1eb1e16f-a959-4d0c-9a5c-29cb97bf2582" />
 
 my favorite pokemon are scolipede, inteleon, meowscarada, hisuian typhlosion, and koraidon
+my favorite vocaloid is kaito
+my favorite twst characters are floyd, sebek, ace, jade, and azul
+my favorite black butler characters are grell, snake, ronald, edward, and cheslock
+my favorite dinosaur is thanatotheristes
+my favorite bug is the mexican red-kneed tarantula
 
 ## <img width="1673" height="325" alt="image" src="https://github.com/user-attachments/assets/4e3ba00e-5d67-4037-9ed6-e0d93d9d4fb7" />
 
+dni ;
+- basic dni criteria
+- radqueer/radqueer supporters
+- hardcore ai supporters - if you use it casually i don't care but if you're a full on ai bro i don't want to interact with you
+- nothing much else, be chill and i won't have a problem with you
 
+iwc ;
+- hating on my favorite characters/pokemon/games - if it's obviously a joke idm though
+- ruikasa/akitoya/anhane shippers (not homophobic promise just don't want to get shit on for the ships i like and i feel like these ships have a lot of people who are all too happy to do that)
+- hardcore ai haters - if you dislike it i get it but if you're like "I HATE AI AND I HOPE ALL AI BROS DIE AND CHATGPT GETS SHUT DOWN RN!!!!" or some other overreaction like that i probably don't want to talk to you
