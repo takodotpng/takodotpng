@@ -5,7 +5,7 @@ about me ;
 - i really like pokemon, vocaloid, twisted wonderland, bugs, and dinosaurs :)
 - if you don't like seeing a specific type of animal please tell me since i like to send pictures of animals i find cute to my friends (including insects, arachnids, amphibians, and reptiles)
 - really shy but always happy to talk about my interests to people!!
-- 
+
 ## <img width="1673" height="493" alt="image" src="https://github.com/user-attachments/assets/1eb1e16f-a959-4d0c-9a5c-29cb97bf2582" />
 
 my favorite pokemon are scolipede, inteleon, meowscarada, hisuian typhlosion, and koraidon
